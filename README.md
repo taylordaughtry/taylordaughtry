@@ -1,0 +1,1 @@
+Building and maintaining world-class projects for brands used by millions everyday. Currently transforming the relocation industry at [Relocity](https://relocity.com) and writing about technology and AI at [taylordaughtry.com](https://taylordaughtry.com).
